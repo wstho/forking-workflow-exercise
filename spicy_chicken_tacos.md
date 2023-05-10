@@ -1,4 +1,4 @@
-Spicy chicken tacos
+Spicy protein tacos
 
 This tacos are tasty and spicy. You can use jalapenos, habaneros or any preferred chili pepper:
 
